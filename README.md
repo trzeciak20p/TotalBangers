@@ -22,6 +22,18 @@
 ### F-777
 
 
+### [Hinkik]
+
+### [1f1n1ty](https://youtube.com/playlist?list=PL4mWww3_9yrG8ZRfp6XwxQ0WoIS6W-apQ)
+- [Calm Craggy Area Remix](https://youtu.be/VR05SK0oTD8)
+- [Within the Sadness Remix](https://youtu.be/dbnKSyN3Jj4)
+- [Dark Matter Suite Remix](https://youtu.be/_7Z7vtVVuQI)
+- [Aeolia](https://youtu.be/xDxgX53MXzk)
+- [Kanons EP](https://youtu.be/1ctp5jCjQ54)
+- [By Day, By Night](https://youtu.be/CkIGhixNOAg)
+- [Asau](https://youtu.be/JCHnb4EjcR4)
+
+
 ## Core
 
 ### Kurokotei
